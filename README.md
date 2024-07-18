@@ -1,1 +1,2 @@
 # tercer-entrega
+no tuve mucho tiempo para hacerla bien a la tercer pre entrea por tema del trabajo que estoy haciendo casi 12 horas al dia se me complico pero maso o menosle agregue creo lo que se pedia espero que para la final pueda entregar algo bien 
